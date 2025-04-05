@@ -1,3 +1,2 @@
 - 👋 Hi, I’m @guilhermerodrigues2121
-- 👀 I’m interested in ...
 
